@@ -1,5 +1,5 @@
 ## hey there
-durin and kosma irl
+в основном полу-афк, так что лучше пишите в лс, иногда люблю поговорить
 
 I'm almost always offtab sorry
 
@@ -12,11 +12,11 @@ i don't really want to share my info, so just call me by the name of the charact
 
 INFP , melancholic any pronouns . you can just use the pronouns of the character I'm cosplaying or she/her
 
-MAIN FANDOMS : HSR, GI , ALNST , DANGANRONPA , YTTD, STRANGER THINGS (I also know a lot of fandoms, but I'm mostly focused on hoyo games)
+MAIN FANDOMS : hsr, gi, okegom, fnaf, undertale and maybe some others too
 
-I don't usually say anything, but I like to just sit next to someone , so C+H pls
+i don't usually say anything, but I like to just sit next to someone , so C+H pls
 
-friendly . don't be afraid to sit next to me or say something to me, but English is not my first language and therefore I will not conduct a dialogue very well
+friendly . don't be afraid to sit next to me or say something to me, but i can be awkward srry
 
 PPL UNDER 12 YEARS OLD DNI I don't really care about other things ok
 
