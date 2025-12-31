@@ -4,8 +4,7 @@
 I'm almost always offtab sorry
 
 
-<img width="850" height="496" alt="image" src="https://github.com/user-attachments/assets/12bff647-12a9-45b3-a0f2-e2d729da1095" />
-
+<img width="880" height="230" alt="image" src="https://github.com/user-attachments/assets/22342635-bb95-4ab4-b08e-c0a57b505c22" />
 
 
 i don't really want to share my info, so just call me by the name of the character I'm cosplaying
