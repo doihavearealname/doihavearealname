@@ -17,7 +17,6 @@ i don't usually say anything, but I like to just sit next to someone , so C+H pl
 
 friendly . don't be afraid to sit next to me or say something to me, but i can be awkward srry
 
-
 ![щеночечек](https://github.com/user-attachments/assets/a9143510-01c5-4b20-b407-e0ed4145e381)
 
 
