@@ -9,7 +9,7 @@ I'm almost always offtab sorry
 
 i don't really want to share my info, so just call me by the name of the character I'm cosplaying
 
-INFP , melancholic any pronouns . you can just use the pronouns of the character I'm cosplaying or she/her
+INFP , any pronouns . you can just use the pronouns of the character I'm cosplaying or she/her
 
 MAIN FANDOMS : hsr, gi, okegom, yttd, danganronpa, fnaf, undertale and maybe some others too
 
